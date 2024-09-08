@@ -1,4 +1,4 @@
-- I’m @abhiraid
+- I’m @abhiraidu
 
 - I’m currently learning ...
 
