@@ -1,3 +1,7 @@
-- 👋 Hi, I’m @abhiraid
+- I’m @abhiraid
 
-- 🌱 I’m currently learning ...
+- I’m currently learning ...
+
+- see you soon as a dev🤍
+
+- 
